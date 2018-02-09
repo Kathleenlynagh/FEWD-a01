@@ -13,6 +13,6 @@ I have always loved jewelry. In the 90's I left my corporate grphic design job t
 * design
 
 To this day I still enjoy designing and making jewelry.
-![jewelry on display](file:///Users/calvin/Desktop/Screen%20Shot%202018-01-25%20at%204.34.38%20PM.png)
+![jewelry on display](https://www.instagram.com/p/BazSVLSD-jz/?taken-by=kathleenlynagh)
 
 If you like my work please take a look at [my blog.](www.kathleenlynagh.me)
