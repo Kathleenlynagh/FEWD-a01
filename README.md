@@ -12,6 +12,7 @@ I have always loved jewelry. In the 90's I left my corporate grphic design job t
 * stone setting 
 * design
 
-To this day I still enjoy designing and making jewelry.![jewelry on display] (https://www.instagram.com/p/Bahe95ADIWA/?taken-by=kathleenlynagh)
+To this day I still enjoy designing and making jewelry.
+![jewelry on display](https://www.instagram.com/p/Bahe95ADIWA/?taken-by=kathleenlynagh)
 
 If you like my work please take a look at [my blog.](www.kathleenlynagh.me)
